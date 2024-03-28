@@ -2,7 +2,7 @@
 
 By Joseph Mitchell
 
-Video overview: <URL HERE>
+Video overview: <[https://youtu.be/sNBEmMcffvQ](https://youtu.be/sNBEmMcffvQ)>
 
 ## Scope
 
